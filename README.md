@@ -1,1 +1,0 @@
-# econometria-avan-ada1
